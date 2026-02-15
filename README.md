@@ -1,3 +1,3 @@
-I make fun apps on my free time.
+I make fun apps.
 
-You can reach me at [ibrahimtowha.me](https://ibrahimtowha.me) or email at [hello@ibrahimtowha.me](mailto:hello@ibrahimtowha.me).
+You can reach me at [ibrahimtowha.me](https://ibrahimtowha.me) or email at [hello@ibrahimtowha.me](mailto:hello@ibrahimtowha.me). or [@samurmaykrrr])(https://x.com/samurmaykrrr) 
